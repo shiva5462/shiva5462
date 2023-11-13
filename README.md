@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shiva5462
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning full stack developer 
+- 💞️ I’m looking to collaborate on top mnc
+- 📫 How to reach me 830927332
